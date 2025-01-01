@@ -1,1 +1,1 @@
-# Economic-Scientific-Research-Institute
+Compilation of Scientific Publications
